@@ -7,4 +7,4 @@ Ama güzel öğrendik. İyi öğrendik.
 * Yaşar Kemal - [O iyi insanlar, o güzel atlara bindiler çekip gittiler](https://encrypted-tbn2.gstatic.com/images?q=tbn:ANd9GcRQqMLmdTngos4jPnxnSxOBMZSXqkgGhuadtWtkAWnbyimmSdMv)
 * Heisenberg - [Say My Name](https://www.youtube.com/watch?v=fHKrCs1rFRI)
 * Heisenberg - [I am not in danger,Skyler. I am the danger!](https://www.youtube.com/watch?v=VkzTcD-kvag)
-* Cafer - [Korkun benden]()
+* Cafer - [Korkun benden](https://www.youtube.com/watch?v=fD4w3RYvqkM)
